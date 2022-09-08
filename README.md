@@ -1,4 +1,4 @@
 # AMOGUS_ES
 Computational practice
 
-**Our team consists of: **
+**Our team consists of:**
