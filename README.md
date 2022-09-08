@@ -1,4 +1,4 @@
-# AMOGUS_ES
+# MANYK
 Computational practice, LNU, 2022-23
 
 *Our team consists of:*
