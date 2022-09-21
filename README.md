@@ -3,7 +3,7 @@ Computational practice, LNU, 2022-23
 
 *Our team consists of:*
 
-**_Yulian Hakh_ -**
+**_Yulian Hakh_ - First Captian's Mate**
 
 **_Max Linnyk_ -**
 
